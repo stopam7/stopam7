@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @stopam7
+- 👀 I’m interested in 7
+- 🌱 I’m currently learning 7
+- 💞️ I’m looking to collaborate on 7
+- 😄 Pronouns: O/Cara
